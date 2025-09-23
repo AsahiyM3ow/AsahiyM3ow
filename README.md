@@ -2,7 +2,19 @@
 
 ![](https://64.media.tumblr.com/3509ba7a2bbde9b6c229f8971352f726/ed0ea642a074bc81-09/s250x400/7d75b7c84dd880ef0f849ff86912900e12d796ab.gifv)![](https://64.media.tumblr.com/93ab315e65678baf8a2e668923089a62/ed0ea642a074bc81-83/s250x400/e1360c0ded5ed215a929f024994848249b4391ae.gifv)
 
-19'Male'Sensitive; C+h freely, Shy,,
+19'Male'Sensitive; Shy,,
+
+Do cuddle and hide with me I won't bite!
+
+Often in forsaken area, sometimes in Island,,
+
+Int if you want, I am surely on the tab or just working so do whisper if needed.
+
+I am very exitced so sorry if I don't use hashtones.
+
+My mood = Very changeable.
+
+read my strawpage for more details!
 
 ![](https://64.media.tumblr.com/be9b21bda29b4610337490a9ce09bef7/ed0ea642a074bc81-55/s100x200/03478d2c83a37fa44a13d4b08971cce3dad25da8.gifv)
 
