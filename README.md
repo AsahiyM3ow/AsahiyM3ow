@@ -4,11 +4,7 @@
 
 19'Male'Sensitive; C+h freely, Shy,,
 
-𖦹
-
-𐔌՞. .՞𐦯
-
-𖦹
+![](https://64.media.tumblr.com/be9b21bda29b4610337490a9ce09bef7/ed0ea642a074bc81-55/s100x200/03478d2c83a37fa44a13d4b08971cce3dad25da8.gifv)
 
 Comfs : Two time, Azure <--(Forsaken) 
 
@@ -18,7 +14,7 @@ Comfs : Two time, Azure <--(Forsaken)
 
 𖦹
 
-Comfs :Flins,Varka,Nefer,Kinich,Ororon <--(genshin) 
+Comfs : Flins,Varka,Nefer,Kinich,Ororon <--(genshin) 
 
 𖦹
 
@@ -26,7 +22,7 @@ Comfs :Flins,Varka,Nefer,Kinich,Ororon <--(genshin)
 
 𖦹
 
-Comfs :Cerydra,Phainon,boothil,sunday,,danheng,jiaoqiu,ruan mei,ratio...<--(hsr)
+Comfs : Cerydra,Phainon,boothil,sunday,,danheng,jiaoqiu,ruan mei,ratio...<--(hsr)
 
 ![](https://64.media.tumblr.com/4fae3ae3db10bbdc8009b2627e890486/ac4089a406d8046b-ed/s100x200/d6c10956578f9280b927e530a194547940e53d9e.gifv)
 
