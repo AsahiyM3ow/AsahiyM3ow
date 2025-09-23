@@ -26,7 +26,7 @@ Comfs : Two time, Azure <--(Forsaken)
 
 𖦹
 
-Comfs : Flins,Varka,Nefer,Kinich,Ororon <--(genshin) 
+Comfs : Barbatos,Venti,Flins,Varka,Nefer,Kinich,Ororon <--(genshin) 
 
 𖦹
 
